@@ -1,0 +1,1 @@
+# Stock-Trading-Strategy-For-Tech-Investors
